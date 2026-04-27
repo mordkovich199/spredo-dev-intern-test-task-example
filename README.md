@@ -1,0 +1,1 @@
+# spredo-dev-intern-test-task-example
